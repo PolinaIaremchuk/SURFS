@@ -1,2 +1,3 @@
 # SURFS
-[The YouTube link](https://github.com/PolinaIaremchuk/SURFS/new/main?readme=1)
+https://youtu.be/qg-pU1KhXrQ
+
